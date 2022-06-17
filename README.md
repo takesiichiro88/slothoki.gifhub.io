@@ -1,5 +1,3 @@
-# slothoki.gifhub.io
-Situs Judi Slot Online Hoki Terpercaya 20200
 <!doctype html>
 <html amp lang="id">
        <head>
